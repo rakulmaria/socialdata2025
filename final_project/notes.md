@@ -4,7 +4,7 @@
 
 - Might be interesting to look at white-tailed eagle (Haliaeetus albicilla), as its habitat has increased over time. Maybe the positive story?
     - https://www.dof.dk/om-dof/nyheder?nyhed_id=2226
-    
+    - https://www.verdensmaal.org/nyheder/danske-havørne-er-pa-vingerne-igen-en-succeshistorie
 
 
 > Remeber to cite GBIF! See link below
